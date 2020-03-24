@@ -2,4 +2,7 @@
 some easy virus witten by a noob
 
 
-just for study!!
+
+learn only!!!
+learn only!!!
+learn only!!!
